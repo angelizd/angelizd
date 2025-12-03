@@ -17,6 +17,4 @@
 
 [strawpage‎](https://phantmhive.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://hauntedz.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/angelizd)
 
-( interact with care/caution )
-
 <img width="2048" height="806" alt="IMG_4599" src="https://github.com/killandeatme/killandeatme/blob/main/Untitled69_20251120223938.png" />
