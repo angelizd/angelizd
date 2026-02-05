@@ -9,7 +9,7 @@
 
 <h4 align="center">
  
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s29noz0z0tsui1jrhgt5n8epl&cover_image=true&theme=novatorem&show_offline=true&background_color=AFCDD4&interchange=false&bar_color=7ab078&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=s29noz0z0tsui1jrhgt5n8epl&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s29noz0z0tsui1jrhgt5n8epl&cover_image=true&theme=novatorem&show_offline=true&background_color=B9BEBB&interchange=false&bar_color=B9BEBB&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=s29noz0z0tsui1jrhgt5n8epl&redirect=true)
 </h4> 
 
 <img width="2000" height="550" alt="IMG_4600" src="https://github.com/angelizd/angelizd/blob/main/Untitled86_20260205224149.png" />
