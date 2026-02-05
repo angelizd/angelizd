@@ -16,6 +16,7 @@
 <p align="center">
 
 [art twt](https://x.com/angeiizedd?s=21)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://hauntedz.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/luddz)
+
 i'm on ponytown to afk, make ponies and sit with my friends. i assure you i'm not here to get involved in drama, i don't know most of the people around, if theres any issues just speak to me directly i'm begging TT.
 
 <img width="2048" height="806" alt="IMG_4599" src="https://github.com/killandeatme/killandeatme/blob/main/Untitled69_20251210113227.png" />
