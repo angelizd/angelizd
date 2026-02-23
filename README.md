@@ -17,3 +17,4 @@
 
 [sp uc]()‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://hauntedz.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [old rentry](https://rentry.co/luddz)
 
+<img width="2048" height="806" alt="IMG_4599" src="https://github.com/angelizd/angelizd/blob/main/IMG_0065.gif" />
