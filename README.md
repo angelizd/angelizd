@@ -15,6 +15,6 @@
 <img width="2000" height="550" alt="IMG_4600" src="https://github.com/angelizd/angelizd/blob/main/IMG_0116.gif" />
 <p align="center">
 
-[s⍴](https://angelizd.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [ᥲ𝗍ᥲᑲ᥆᥆k](https://angelizd.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [cos tiktok](https://www.tiktok.com/@angelizdcos?_r=1&_t=ZS-95W7k7TtS5f)
+[s⍴](https://angelizd.straw.page/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [ᥲ𝗍ᥲᑲ᥆᥆k](https://angelizd.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [𝗅ι᥉t᥆](https://listography.com/angelizd)
 
 <img width="2048" height="806" alt="IMG_4599" src="https://github.com/angelizd/angelizd/blob/main/IMG_0065.gif" />
