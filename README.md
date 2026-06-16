@@ -12,9 +12,9 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s29noz0z0tsui1jrhgt5n8epl&cover_image=true&theme=novatorem&show_offline=true&background_color=B9BEBB&interchange=false&bar_color=B9BEBB&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=s29noz0z0tsui1jrhgt5n8epl&redirect=true)
 </h4> 
 
-<img width="2000" height="550" alt="IMG_4600" src="https://github.com/angelizd/angelizd/blob/main/IMG_0116.gif" />
+<img width="2000" height="550" alt="IMG_4600" src="https://github.com/angelizd/angelizd/blob/main/Untitled90_20260616220034.png" />
 <p align="center">
 
 [ᥲ𝗋𝗍 𝗍ᥕ𝗍](https://x.com/angeiizd?s=21)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [ᥲ𝗍ᥲᑲ᥆᥆k](https://angelizd.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [𝗅ι᥉t᥆](https://listography.com/angelizd)
 
-<img width="2048" height="806" alt="IMG_4599" src="https://github.com/angelizd/angelizd/blob/main/IMG_0065.gif" />
+<img width="2048" height="806" alt="IMG_4599" src="https://github.com/angelizd/angelizd/blob/main/Untitled136_20260616223044.png" />
