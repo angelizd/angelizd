@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="2048" height="806" alt="IMG_4599" src="https://github.com/angelizd/angelizd/blob/main/IMG_0059%20(2).gif" />
+<img width="2048" height="806" alt="IMG_4599" src="https://github.com/angelizd/angelizd/blob/main/Untitled136_20260803020706.png" />
 <h4 align="center"
  
 [![Hits](https://hits.sh/github.com/angelizd.svg?label=%E2%99%A1%20%20%20%20%20heals%20%20%E3%85%A4%D6%B4%E3%85%A4&extraCount=6911&color=93C2CD&labelColor=DFD9C3)](https://hits.sh/github.com/angelizd/)
@@ -15,6 +15,12 @@
 <img width="2000" height="550" alt="IMG_4600" src="https://github.com/angelizd/angelizd/blob/main/Untitled90_20260803014617.png" />
 <p align="center">
 
-[ᥲ𝗋𝗍 𝗍ᥕ𝗍](https://x.com/angeiizd?s=21)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [ᥲ𝗍ᥲᑲ᥆᥆k](https://angelizd.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [𝗅ι᥉t᥆](https://listography.com/angelizd)
-
-<img width="2048" height="806" alt="IMG_4599" src="https://github.com/angelizd/angelizd/blob/main/Untitled136_20260616223044.png" />
+<p align="center"> <a href="https://x.com/angeiizd?s=21">
+  <img src="https://github.com/angelizd/angelizd/blob/main/Untitled145_20260803021253.png" width="300">
+</a>
+  </a>   <a href="https://angelizd.atabook.org/">
+  <img src="https://github.com/angelizd/angelizd/blob/main/Untitled145_20260803021254.png" width="300">
+</a>
+  </a>   <a href="https://listography.com/angelizd">
+  <img src="https://github.com/angelizd/angelizd/blob/main/Untitled145_20260803021251.png" width="300">
+</a>
