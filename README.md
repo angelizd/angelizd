@@ -16,11 +16,11 @@
 <p align="center">
 
 <p align="center"> <a href="https://x.com/angeiizd?s=21">
-  <img src="https://github.com/angelizd/angelizd/blob/main/Untitled145_20260803021253.png" width="300">
+  <img src="https://github.com/angelizd/angelizd/blob/main/Untitled145_20260803021253.png" width="200">
 </a>
   </a>   <a href="https://angelizd.atabook.org/">
-  <img src="https://github.com/angelizd/angelizd/blob/main/Untitled145_20260803021254.png" width="300">
+  <img src="https://github.com/angelizd/angelizd/blob/main/Untitled145_20260803021254.png" width="200">
 </a>
   </a>   <a href="https://listography.com/angelizd">
-  <img src="https://github.com/angelizd/angelizd/blob/main/Untitled145_20260803021251.png" width="300">
+  <img src="https://github.com/angelizd/angelizd/blob/main/Untitled145_20260803021251.png" width="200">
 </a>
